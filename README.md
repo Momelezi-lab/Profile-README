@@ -29,4 +29,5 @@ When I'm not coding, I enjoy curating trendy sneakers and exploring the latest d
 🌐 Urban Sole HQ
 💼 LinkedIn
 📸 Instagram
+📧 fuzilea@gmail.com
 Let’s connect and build something amazing together! 🌟
